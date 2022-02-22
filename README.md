@@ -1,0 +1,1 @@
+# Lista de exercícios do canal Curso em Vídeo do Gustavo Gunabara
